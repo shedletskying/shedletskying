@@ -13,4 +13,4 @@ he / they
 [pronouns.cc](https://pronouns.cc/@dimmerlights)
 
 
-strawpage coming soon
+[strawpage](https://carlysinsanity.straw.page/)
