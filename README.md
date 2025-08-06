@@ -1,5 +1,6 @@
+<img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/2578f6a6-6a9b-414b-8ccd-676c58f38fdb" />  
 
-<img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=60&pause10&color=c9a46b&center=true&vCenter=true&width=1000&lines=All+cookies,+shall+return+to+flower." alt="Typing SVG" />
+<img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=60&pause10&color=c9a46b&center=true&vCenter=true&width=1550&lines=All+cookies,+shall+return+to+flower." alt="Typing SVG" />
 
 <div align=center>
 
