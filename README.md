@@ -1,3 +1,6 @@
+
+<img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=60&pause10&color=c9a46b&center=true&vCenter=true&width=1000&lines=All+cookies,+shall+return+to+flower." alt="Typing SVG" />
+
 <div align=center>
 
 <p align="center"> 
