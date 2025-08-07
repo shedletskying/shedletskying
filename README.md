@@ -15,7 +15,6 @@
 
 <div></div>
 
-am i a biological woman? no (incase i get misgendered)
 
 he / they 
 
