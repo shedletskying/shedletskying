@@ -27,3 +27,5 @@ he / him
 
 
 [strawpage](https://carlysinsanity.straw.page/)
+
+[detailed before you interact rentry](https://rentry.co/bhi72v4a)
