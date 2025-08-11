@@ -17,17 +17,26 @@
 
 <div></div>
 
-
-he / him 
-
-<img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/bdcb92dc-259a-482a-8061-4a0fbd64fbea" /> <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/d9653980-42e4-4212-9e55-9cdd032624f6" />  
-
-<img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/2578f6a6-6a9b-414b-8ccd-676c58f38fdb" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e2c735a5-48c6-44fe-9558-3e9e21d5b006" />       <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/f456464c-cfd6-473c-ad3a-3fec71204dc9" />
 
 
-[pronouns.cc](https://pronouns.cc/@dimmerlights)
+# ponytown basics
 
+helloo! call me mike! i adore making friends so if u want to PLEASE ask me :)
+ O1 - *c + h are allowed in ponytown, unless with friends. you will NEVER catch me using touch triggers lol*
+  ***
+O2 - i use w2i only when offtab, but if im afk, no resp in guaranteed or when whispering, late resp. 
 
-[strawpage](https://carlysinsanity.straw.page/)
+O3 - please no copying or inspo on my ponies.
 
-[detailed before you interact rentry](https://rentry.co/bhi72v4a)
+O4 - i either play on computer or mobile, on mobile i may be a bit slower than usual.
+***
+O5 - please avoid covering unless your a friend.
+
+O6 - i rarely ever have dni, dnuid, dniuf in my name, so you cant pretty much interact whenever, except for when im afk.
+
+O7 - i may get really awkward sometimes and respond with 'oh' or just kinda move around when i dont know what to say, so sorry if that happens.
+
+ok bye
+***
+
