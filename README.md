@@ -31,11 +31,17 @@ O3 - please no copying or inspo on my ponies.
 
 O4 - i either play on computer or mobile, on mobile i may be a bit slower than usual.
 ***
-O5 - please avoid covering unless your a friend.
+O5 - please avoid covering unless your a friend, i wont get mad but its annoying.
 
 O6 - i rarely ever have dni, dnuid, dniuf in my name, so you cant pretty much interact whenever, except for when im afk.
 
 O7 - i may get really awkward sometimes and respond with 'oh' or just kinda move around when i dont know what to say, so sorry if that happens.
+
+<div></div>
+
+<div align=center>
+
+[basic dni criteria](https://basic-dni.crd.co/)
 
 ok bye
 ***
