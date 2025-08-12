@@ -2,7 +2,10 @@
 
 <div align=center>
 
- <img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=25&pause10&color=b01700&center=true&vCenter=true&width=1550&lines=get+digging+bomby,+the+ingredients+are+probably+underground." alt="Typing SVG" />
+ <img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=25&pause10&color=b01700&center=true&vCenter=true&width=1550&lines=whats+my+purpose?." alt="Typing SVG" />
+
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/49edbb4a-f323-4916-85ff-9e668c2e0d0a" />
+
 
 <div align=center>
 
