@@ -25,6 +25,7 @@
 # ponytown basics
 
 helloo! call me mike! i adore making friends so if u want to PLEASE ask me :)
+
  O1 - *c + h are allowed in ponytown, unless with friends. you will NEVER catch me using touch triggers lol*
   ***
 O2 - i use w2i only when offtab, but if im afk, no resp in guaranteed or when whispering, late resp. 
