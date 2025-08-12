@@ -2,14 +2,13 @@
 
 <div align=center>
 
- <img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=25&pause10&color=c9a46b&center=true&vCenter=true&width=1550&lines=All+cookies,+shall+return+to+flour+." alt="Typing SVG" />
+ <img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=25&pause10&color=b01700&center=true&vCenter=true&width=1550&lines=get+digging+bomby,+the+ingredients+are+probably+underground." alt="Typing SVG" />
 
 <div align=center>
 
 <p align="center"> 
  
 
-<img width="448" height="320" alt="image" src="https://github.com/user-attachments/assets/49d8b86d-cc40-4528-a64f-ac4611a381f3" />
 
 <img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/4e24e292-5075-43a6-8bbb-4f139ee34b65" />
 
@@ -17,8 +16,11 @@
 
 <div></div>
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e2c735a5-48c6-44fe-9558-3e9e21d5b006" />       <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/f456464c-cfd6-473c-ad3a-3fec71204dc9" />
+ <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/f456464c-cfd6-473c-ad3a-3fec71204dc9" />
 
+ <details> <summary>ponytown info (click the symbol)</summary> 'im stuck with the kidnapper!?' 'your literally tried murdering me.'
+<br>
+  
 
 # ponytown basics
 
