@@ -1,25 +1,7 @@
-<img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/2578f6a6-6a9b-414b-8ccd-676c58f38fdb" />  
 
 <div align=center>
 
- <img src="https://readme-typing-svg.demolab.com?font=Emilys+Candy&size=25&pause10&color=b01700&center=true&vCenter=true&width=1550&lines=whats+my+purpose?." alt="Typing SVG" />
-
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/49edbb4a-f323-4916-85ff-9e668c2e0d0a" />
-
-<div align=center>
-
-<p align="center"> 
  
-
-
-<img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/4e24e292-5075-43a6-8bbb-4f139ee34b65" />
-
-
-
-<div></div>
-
- <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/f456464c-cfd6-473c-ad3a-3fec71204dc9" />
-
  <details> <summary>ponytown info (click)</summary> 'im stuck with the kidnapper!?' 'your literally tried murdering me.'
 <br>
   
