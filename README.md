@@ -46,6 +46,8 @@ O8 - you can find me at the fnaf, dandys world, or the osc area.
 
 O9 - im a possible in denial non-switching osdd system, but i dont like using the term 'we' or 'us'.
 
+10 - collectively mike and bodily a minor.
+
 <div></div>
 
 <div align=center>
