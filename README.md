@@ -18,7 +18,7 @@
 
  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/f456464c-cfd6-473c-ad3a-3fec71204dc9" />
 
- <details> <summary>ponytown info (click the symbol)</summary> 'im stuck with the kidnapper!?' 'your literally tried murdering me.'
+ <details> <summary>ponytown info (click)</summary> 'im stuck with the kidnapper!?' 'your literally tried murdering me.'
 <br>
   
 
