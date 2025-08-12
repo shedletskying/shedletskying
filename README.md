@@ -40,6 +40,8 @@ O6 - i rarely ever have dni, dnuid, dniuf in my name, so you cant pretty much in
 
 O7 - i may get really awkward sometimes and respond with 'oh' or just kinda move around when i dont know what to say, so sorry if that happens.
 
+O8 - for pronouns i use he/him or they/them. please never use fem terms. (i should update to genderfaun..)
+
 <div></div>
 
 <div align=center>
