@@ -21,5 +21,6 @@
 
 "ɢᴏ ᴀᴡᴀʏ! ɴᴀꜱᴛʏ ɴᴀꜱᴛʏ!" "ꜰʀɪᴇɴᴅꜱʜɪᴘ!"
 
+![main prns.cc](https://pronouns.cc/@dimmerlights) ![fictkin prns.cc]( pronouns.cc/@hopelesslydevoted) ![cardd](https://mikesaboutme.carrd.co/)
 
 
