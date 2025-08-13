@@ -11,7 +11,8 @@
 
 <div align=center>
 
-<img width="1173" height="812" alt="image" src="https://github.com/user-attachments/assets/e384b37c-144e-4f02-af20-82e9f04c7196" />
+<img width="600" height="415" alt="image" src="https://github.com/user-attachments/assets/ce41a946-02ae-4fc2-8297-e78503f69c75" />
+
 
 "ɢᴏ ᴀᴡᴀʏ! ɴᴀꜱᴛʏ ɴᴀꜱᴛʏ!" "ꜰʀɪᴇɴᴅꜱʜɪᴘ!"
 
