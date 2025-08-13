@@ -1,3 +1,9 @@
+<div align=center>
+
+<img width="400" height="210" alt="image" src="https://github.com/user-attachments/assets/71cb3f8f-4773-49fa-9a3b-6e1382c5d630" />
+<div align=center>
+welcome to my page!
+
 
 <div align=center>
 
