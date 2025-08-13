@@ -24,7 +24,7 @@
 <img width="211" height="34" alt="image" src="https://github.com/user-attachments/assets/1af5cee2-b752-4f6b-b0ea-2e7346ee9aad" />
 
 
-[main prns.cc](https://pronouns.cc/@dimmerlights) [fictkin prns.cc (read please)](https://pronouns.cc/@hopelesslydevoted) [cardd](https://mikesaboutme.carrd.co/)
+[main prns.cc (read please)](https://pronouns.cc/@dimmerlights) [fictkin prns.cc](https://pronouns.cc/@hopelesslydevoted) [cardd](https://mikesaboutme.carrd.co/)
 
 
 <img width="854" height="52" alt="image" src="https://github.com/user-attachments/assets/e15d31ec-6313-4893-9929-e9882f3bca9d" />
