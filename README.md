@@ -26,7 +26,9 @@
 
 [main prns.cc (read please)](https://pronouns.cc/@dimmerlights) [cardd](https://mikesaboutme.carrd.co/)
 
-places circled in red is where you may find me
+places circled in ![API](https://github-colored-text-fn3z.vercel.app/api/index.js?text=red&color=#FF0000&width=TEXTWIDTH&fontSize=5&height=5&x=X&y=Y) 
+
+is where you may find me
 
 <img width="200" height="182" alt="image" src="https://github.com/user-attachments/assets/96d2f9d2-28b6-4227-93fd-1e2eeaf82f4e" />
 
