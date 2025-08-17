@@ -22,15 +22,3 @@
 "ɢᴏ ᴀᴡᴀʏ! ɴᴀꜱᴛʏ ɴᴀꜱᴛʏ!" "ꜰʀɪᴇɴᴅꜱʜɪᴘ!"
 
 <img width="211" height="34" alt="image" src="https://github.com/user-attachments/assets/1af5cee2-b752-4f6b-b0ea-2e7346ee9aad" />
-
-
-[main prns.cc (read please)](https://pronouns.cc/@dimmerlights) [cardd](https://glitchcore.carrd.co/)
-
-places circled in ![API](https://github-colored-text-fn3z.vercel.app/api/index.js?text=red&color=#FF0000&width=TEXTWIDTH&fontSize=5&height=5&x=X&y=Y) 
-
-is where you may find me
-
-<img width="200" height="182" alt="image" src="https://github.com/user-attachments/assets/96d2f9d2-28b6-4227-93fd-1e2eeaf82f4e" />
-
-
-<img width="854" height="52" alt="image" src="https://github.com/user-attachments/assets/e15d31ec-6313-4893-9929-e9882f3bca9d" />
