@@ -20,7 +20,3 @@
 
 
 "ɢᴏ ᴀᴡᴀʏ! ɴᴀꜱᴛʏ ɴᴀꜱᴛʏ!" "ꜰʀɪᴇɴᴅꜱʜɪᴘ!"
-
-<img width="211" height="34" alt="image" src="https://github.com/user-attachments/assets/1af5cee2-b752-4f6b-b0ea-2e7346ee9aad" />
-
-wip
