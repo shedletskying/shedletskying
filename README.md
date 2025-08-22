@@ -1,6 +1,6 @@
 <div align=center>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Alfa+Slab+One&pause=1000&color=8B8B8B&width=435&lines=I'm+feelin'+pretty+lucky.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Alfa+Slab+One&pause=1000&color=8B8B8B&width=435&lines=work+in+progress.)](https://git.io/typing-svg)
 
 
 <div align=center>
