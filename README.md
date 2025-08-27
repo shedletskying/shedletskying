@@ -1,7 +1,8 @@
 <div align="center">
     
 
-<img align="left" width="60%" src="https://github.com/user-attachments/assets/361c161f-cf6b-4cef-8b38-ea8241ecd336">
+<img align="left" width="60%" src="https://github.com/user-attachments/assets/176a7711-0cb5-4508-a7af-10a7b0bd7427" />
+
 
 <h7 align>
 "𝘥𝘰𝘸𝘯 𝘵𝘩𝘦 𝘴𝘶𝘯𝘴𝘦𝘵 𝘣𝘦𝘢𝘤𝘩.."
