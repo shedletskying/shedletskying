@@ -11,12 +11,8 @@
 
   "𝘵𝘩𝘦 𝘮𝘰𝘰𝘯 𝘩𝘶𝘨𝘴 𝘵𝘩𝘦 𝘭𝘢𝘯𝘥."
 
-➽───────» 
+➽───────»
 
-
-<div align="center">
-
-ponytown stats (i use):
 
 <img width="20" height="18" alt="image" src="https://github.com/user-attachments/assets/8cf51f84-ea21-4009-8f95-3fd4d0afac86" /> - always offtab or chatting with friends. w2i recommended.
 
