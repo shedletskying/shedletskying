@@ -13,6 +13,9 @@
 
 ➽───────» 
 
+
+<div align="center">
+
 ponytown stats (i use):
 
 <img width="20" height="18" alt="image" src="https://github.com/user-attachments/assets/8cf51f84-ea21-4009-8f95-3fd4d0afac86" /> - im always on this, im either offtab or im garunteed to go afk.
