@@ -18,13 +18,7 @@
 
 ponytown stats (i use):
 
-<img width="20" height="18" alt="image" src="https://github.com/user-attachments/assets/8cf51f84-ea21-4009-8f95-3fd4d0afac86" /> - im always on this, im either offtab or im garunteed to go afk.
-
-<img width="20" height="18" alt="image" src="https://github.com/user-attachments/assets/e9c3a420-d7b7-419b-9efa-abc431e52f67" /> - when im afk and will not respond at all.
-
-
-
-  
+<img width="20" height="18" alt="image" src="https://github.com/user-attachments/assets/8cf51f84-ea21-4009-8f95-3fd4d0afac86" /> - always offtab or chatting with friends. w2i recommended.
 
 
 
