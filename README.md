@@ -1,4 +1,6 @@
 <div align="center">
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Eater&size=17&duration=4950&pause=1000&color=22215FFF&width=435&lines=Everything+rots%2C+it+burns%2C+it+dies.)](https://git.io/typing-svg)
     
 
 <img align="left" width="60%" src="https://github.com/user-attachments/assets/176a7711-0cb5-4508-a7af-10a7b0bd7427" />
