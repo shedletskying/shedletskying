@@ -1,4 +1,4 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Silkscreen&pause=1000&color=B8B8B8&width=435&lines=Nanananana+Batman!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Silkscreen&pause=1000&color=FF3F97&width=435&lines=how+can+I+live+forever%3F)](https://git.io/typing-svg)
 
