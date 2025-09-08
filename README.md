@@ -1,6 +1,4 @@
 <div align="center">
 
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/fd7e005a-c6eb-4594-ac7c-65d20d656257" />
-
-
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Silkscreen&pause=1000&color=B8B8B8&width=435&lines=Nanananana+Batman!)](https://git.io/typing-svg)
 
