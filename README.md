@@ -1,4 +1,3 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Silkscreen&pause=1000&color=FF3F97&width=435&lines=how+can+I+live+forever%3F)](https://git.io/typing-svg)
-
+<img width="1173" height="812" alt="image" src="https://github.com/user-attachments/assets/be3fd7d8-b2af-454a-acba-255b8125c3fc" />
