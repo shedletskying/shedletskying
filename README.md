@@ -7,7 +7,7 @@
 
 <br />
 
-<img src="https://komarev.com/ghpvc/?username=artfufu&base=7906&color=grey&label=Cool People">
+<img src="https://komarev.com/ghpvc/?username=artfufu&base=7906&color=grey&label=CoolPeople">
 
 *pc viewed reccomended.*
 
