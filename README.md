@@ -19,7 +19,7 @@
 
 <ins>**link log**</ins>
 
-> [prns.cc](https://pronouns.cc/@shedletskying) [strw.pg](https://tenshadows.straw.page/) [art gallery](https://bensartgallery.straw.page/)
+> [prns.cc](https://pronouns.cc/@shedletskying) [art gallery](https://bensartgallery.straw.page/)
 
 
 
