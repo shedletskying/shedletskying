@@ -7,7 +7,6 @@
 
 <br />
 
-<img width="203" height="200" alt="2025_10_21_0xh_Kleki (1)" src="https://github.com/user-attachments/assets/0ee93052-10d5-4220-bec0-62994ccba5e0" />
 
 
 <img src="https://komarev.com/ghpvc/?username=artfufu&base=7906&color=grey&label=CoolPeople">
