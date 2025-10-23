@@ -21,7 +21,7 @@
 
 <ins>**link log**</ins>
 
-> [prns.cc](https://pronouns.cc/@shedletskying) [art gallery](https://bensartgallery.straw.page/)
+> [prns.cc](https://pronouns.cc/@shedletskying) [art gallery](https://bensartgallery.straw.page/) [strw.pg](https://dandyfield.straw.page/)
 
 
 
