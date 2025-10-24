@@ -13,7 +13,7 @@
 
 *pc viewed reccomended.*
 
- > hi my name is benji but shortened to ben.
+ > hi my name is benji but shortened to ben
 
 
 
@@ -24,7 +24,7 @@
 > [prns.cc](https://pronouns.cc/@shedletskying) [strw.pg](https://dandyfield.straw.page/)
 
 
-> i don't accept random friend requests unless we've interact a lot, and i took a liking to you. i'm schizophrenic (prone to episodes, if i go abnormally quiet, and don't respond thats why.)
+> i don't accept random friend requests unless we've interact a lot, oooor i took a liking to you. i'm schizophrenic (prone to episodes, if i go abnormally quiet, and don't respond thats why)
 
 
 
