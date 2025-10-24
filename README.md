@@ -16,7 +16,7 @@
 
 <br>
 
-> [prns.cc](https://pronouns.cc/@shedletskying) [strw.pg](https://dandyfield.straw.page/)
+> [prns.cc](https://pronouns.cc/@8ullets) [strw.pg](https://dandyfield.straw.page/)
 
 
 
