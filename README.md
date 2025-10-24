@@ -16,7 +16,7 @@
 
 <br>
 
-> [prns.cc](https://pronouns.cc/@8ullets) [strw.pg](https://dandyfield.straw.page/) [cardd](https://twobeststrikers.carrd.co/)
+> [prns.cc](https://pronouns.cc/@8ullets) [cardd](https://twobeststrikers.carrd.co/)
 
 
 
