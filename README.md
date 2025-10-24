@@ -13,7 +13,7 @@
 
 *pc viewed reccomended.*
 
- > hi my name is benji but shortened to ben
+ > hi my name is benji but shortened to ben. i like the color baby blue if u cant tell lol
 
 
 
