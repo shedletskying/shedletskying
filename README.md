@@ -17,7 +17,7 @@
 
 <br>
 
-> [prns.cc](https://pronouns.cc/@8ullets) [cardd](https://twobeststrikers.carrd.co/)
+> [prns.cc](https://pronouns.cc/@shedletskying) [cardd](https://twobeststrikers.carrd.co/)
 
 
 
