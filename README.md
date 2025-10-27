@@ -1,6 +1,7 @@
 <div align="center">
 
-<img width="1200" height="511" alt="image" src="https://github.com/user-attachments/assets/1d758edf-042f-498f-a36d-4cf2af993fec" />
+<img width="1080" height="471" alt="image" src="https://github.com/user-attachments/assets/714e1533-f88e-4e8b-b0a7-208a668d1cb8" />
+
 
 
 
@@ -11,7 +12,7 @@
 
 
 
-<img src="https://komarev.com/ghpvc/?username=artfufu&base=7906&color=grey&label=CoolPeople">
+<img src="https://komarev.com/ghpvc/?username=artfufu&base=7906&color=ff4800&label=Flames">
 
 
 
